@@ -1,4 +1,4 @@
-
+instant Script for forsaken offers the most advanced forsaken Script, with no cooldown and infinite resources. Perfect for dominating any match.
 
 
 
